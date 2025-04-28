@@ -1,1 +1,1 @@
-# About-Me
+# Dedicated and Results-driven Data Analyst with over 3 years experience in interpreting and analyzing data to drive successful business solutions. Proficient in Excel, Power Bi, SQL, Tableau and IBM SPSS with a strong background in statistical analysis and data visualization. Seeking to leverage data analytics skills to contribute to any organisation or Project.
